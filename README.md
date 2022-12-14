@@ -9,4 +9,5 @@
 * My memory is very short, I may ask/tell you things I've already asked/told you in the past.
 * I am mostly AFK/Off-Tab, whispers are best to get a reply from me.
 
-<img src="https://i.imgur.com/j3G3Y1U.gif" width="150">ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.imgur.com/cS4POZj.gif" width="240">
+<img src="https://cdn.discordapp.com/attachments/1010148872640811149/1052655710485364826/ciodia_ppp.png" width="260">
+pitter patter pop edit by me
