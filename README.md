@@ -1,4 +1,5 @@
-![alt text](https://i.pinimg.com/originals/27/63/00/276300522163b38a81f86d93d04ea9e0.gif)
+
+<img src="https://i.pinimg.com/originals/27/63/00/276300522163b38a81f86d93d04ea9e0.gif" width="360">
 
 #### ☎️ ⵌ . About Me . ↓
   * Angel / Diavolo
