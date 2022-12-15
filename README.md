@@ -9,6 +9,7 @@
 * JJBA is my main interest, I will talk about it a lot.
 * My memory is very short, I may ask/tell you things I've already asked/told you in the past.
 * I am mostly AFK/Off-Tab, whispers are best to get a reply from me.
+* I don't mind anybody sitting with me or my friends, I won't yell at you for doing it.
 
 <img src="https://cdn.discordapp.com/attachments/1010148872640811149/1052655710485364826/ciodia_ppp.png" width="260">
 pitter patter pop edit by me
