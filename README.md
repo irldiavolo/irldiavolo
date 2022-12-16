@@ -11,9 +11,9 @@
 * I am mostly AFK/Off-Tab, whispers are best to get a reply from me.
 * I don't mind anybody sitting with me or my friends, I won't yell at you for doing it.
 
-#### ★ 😈 . + < [I Love My Friends! ♡ AKA The Water](https://thewater.carrd.co/)
+#### ★ 😈 . + < I Love My Friends! ♡ AKA 'The Water'
 Sufer, Seth, Sarah, David, Cyan, John, Tessimo, Max, Alexis, 
-Gabs, Zenia, Yevgeni, Diego, Zyad, Hale, Adrian, & Ocean
-
+Gabs, Zenia, Yevgeni, Diego, Zyad, Sera, Des, Sal, Hale, Adrian, & Ocean
 <img src="https://cdn.discordapp.com/attachments/1010148872640811149/1052655710485364826/ciodia_ppp.png" width="260">
+
 pitter patter pop edit by me
