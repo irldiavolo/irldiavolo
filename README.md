@@ -14,6 +14,4 @@
 #### ★ 😈 . + < I Love My Friends! ♡ AKA 'The Water'
 Sufer, Seth, Sarah, David, Cyan, John, Tessimo, Max, Alexis, 
 Gabs, Zenia, Yevgeni, Diego, Zyad, Sera, Des, Sal, Hale, Adrian, & Ocean
-<img src="https://cdn.discordapp.com/attachments/1010148872640811149/1052655710485364826/ciodia_ppp.png" width="260">
 
-pitter patter pop edit by me
