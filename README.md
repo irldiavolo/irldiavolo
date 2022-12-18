@@ -2,7 +2,7 @@
 <img src="https://i.pinimg.com/originals/27/63/00/276300522163b38a81f86d93d04ea9e0.gif" width="360">
 
 #### ☎️ ⵌ . About Me . ↓
-  * Angel / Diavolo
+  * Diavolo
 * 19 y/o. He/Him. Bisexual & Trans
    * Check my carrd for interests, etc.
 #### ⛤👑 . Buyer Beware
