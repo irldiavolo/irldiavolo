@@ -3,8 +3,8 @@
 
 #### ☎️ ⵌ . About Me . ↓
   * Diavolo
-* 19 y/o. He/Him. Bisexual & Trans
-   * Check my carrd for interests, etc.
+* 19 y/o. He/Him. Bisexual Cis Man
+   * JJBA, Genshin, Twitch (xQc), Chainsaw Man, Breaking Bad & Better Call Saul
 #### ⛤👑 . Buyer Beware
 * JJBA is my main interest, I will talk about it a lot.
 * My memory is very short, I may ask/tell you things I've already asked/told you in the past.
